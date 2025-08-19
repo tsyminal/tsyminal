@@ -1,3 +1,3 @@
 everywhere and nowhere
 
-![puffy64-4291345331](https://github.com/user-attachments/assets/8c978687-9efd-4457-ba01-70e54ade3d92)
+![tsutsuii-zaurus-632727951](https://github.com/user-attachments/assets/7a0bf545-294a-4fc6-9cb8-ea1d3fe2f217)
